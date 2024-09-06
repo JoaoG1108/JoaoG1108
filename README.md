@@ -7,3 +7,5 @@ Meu nome é João Guilherme
 - Utilizo esse espaço para minha organização e compatilhamento dos meus projetos desenvolvidos
 
 ### Entre em contato comigo 📫
+
+00001124652267sp@al.educacao.sp.gov.br
