@@ -9,3 +9,5 @@ Meu nome é João Guilherme
 ### Entre em contato comigo 📫
 
 00001124652267sp@al.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/LsYPAE9JiP8AAAAd/rolando-ronaldo.gif)
